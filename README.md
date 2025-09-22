@@ -1,4 +1,4 @@
-# Paula Moukhtar
+
 ## 💻 Data Scientist | AI & Data Enthusiast  
 
 ---
